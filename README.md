@@ -78,5 +78,5 @@ Open to entry-level opportunities in:
 - **LinkedIn:** [Lipika Jagadish](https://linkedin.com/in/lipika-jagadish)
 - **GitHub:** [lipikaise2026-stack](https://github.com/lipikaise2026-stack)
 - **Email:** lipikaise2026@gmail.com
-- 
+  
 
